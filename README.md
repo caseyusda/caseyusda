@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @caseyusda
+- 👋 Hi, I’m Casey.
 - 👀 This is my work account for USDA projects ...
 
 - 📫 How to reach me casey.spaulding@usda.gov 
